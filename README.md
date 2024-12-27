@@ -1,1 +1,0 @@
-# Data-Pejualan-Jasa-Rental-Sepeda
